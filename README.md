@@ -1,4 +1,4 @@
-# Privacy Policy
+# Privacy Policy (Veysor)
 
 Last updated: May 1, 2026
 
